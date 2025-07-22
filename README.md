@@ -1,0 +1,1 @@
+# analise_partidos_presidencia_alesc
